@@ -1,1 +1,1 @@
-Create a new branch is quick and simple.
+Keep calm and carry on.
