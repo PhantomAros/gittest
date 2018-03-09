@@ -1,1 +1,1 @@
-Keep calm & carry on.
+Keep calm and carry on.
